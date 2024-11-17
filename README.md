@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on **DDOS Script**
 
-- 👯 I’m looking to collaborate on Saya **All Hackers in Indonesia**
+- 👯 I’m looking to collaborate on **All Hackers in Indonesia**
 
 - 🤝 I’m looking for help with **Social media**
 
